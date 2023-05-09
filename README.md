@@ -8,7 +8,7 @@
 
 ![image](https://user-images.githubusercontent.com/105573554/236826827-14d0f359-d5e4-4d3e-9362-e1174e5d5a00.png)
 
-### 다음과 같은 긴급한 상황에 유용할 것으로 예상합니다.
+### 다음과 같은 긴급한 상황에 유용할 것으로 예상
 
 
 ![image](https://user-images.githubusercontent.com/105573554/236826977-7830a71a-339e-4c20-8df6-91a406445e07.png)
